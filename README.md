@@ -2,7 +2,7 @@
 
 🎓 **DevOps Engineer (Internship-Seeking) | Competitive Programmer | Cloud Enthusiast**  
 📍 Mohakhali, Dhaka, Bangladesh  
-📫 Reach me: [hiddenclue0@gmail.com](mailto:hiddenclue0@gmail.com)
+📫 Reach me: [jakirhosen9395@gmail.com](mailto:jakirhosen9395@gmail.com)
 
 ---
 
